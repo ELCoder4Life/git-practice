@@ -1,1 +1,1 @@
-A fast [paced]
+Fast Paced
